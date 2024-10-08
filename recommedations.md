@@ -3,3 +3,7 @@
 ## EVENTS
 
 ## BENEFITS
+
+## EQUIPMENT
+
+- myszka

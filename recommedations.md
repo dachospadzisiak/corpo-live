@@ -7,3 +7,4 @@
 ## EQUIPMENT
 
 - myszka
+- monitor

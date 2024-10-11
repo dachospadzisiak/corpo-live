@@ -7,6 +7,9 @@ please keep in min that e will take my money for them from your salares
 
 ## BENEFITS
 
+- ubezpieczenie
+- punkty
+
 ## EQUIPMENT
 
 - myszka
